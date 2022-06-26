@@ -1,1 +1,1 @@
-https://SiarheiKazakevich.github.io/kids/Dianka/LadyDI/
+https://SiarheiKazakevich.github.io/Dianka/LadyDI/
